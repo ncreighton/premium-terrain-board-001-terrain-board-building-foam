@@ -1,0 +1,2 @@
+# premium-terrain-board-001-terrain-board-building-foam
+Tired of wasting expensive foam and hours on terrain builds that don't turn out as planned? This Notion template transforms your scattered ideas into a repeatable, organized workshop—so every board you sculpt is a masterpiece from the first cut.  Stop juggling messy notes, forgotten measurements, and trial-and-error material ordering. The Terrain B
